@@ -10,4 +10,4 @@
 
 平台上每天更新各种高清福利视频，确保为您带来流畅和清晰的观看体验。每个视频都附有详细的影片描述，帮助您快速找到喜欢的内容，享受高质量的影片资源。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/hay20250709/hay14 ）</span>
